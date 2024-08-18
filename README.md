@@ -8,7 +8,7 @@ Meu nome é Nathalia Ouriques
 
  ### você pode entrar em contato comigo 📬
  
- 00001097341628sp@al.educacao.so.gov.br - e-mail
+ 00001097341628sp@al.educacao.sp.gov.br - e-mail
 
 @ouriques.nathi - instagram
 
